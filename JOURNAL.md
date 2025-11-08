@@ -19,10 +19,15 @@ Well, Now i can make my own designs and earn some money by selling them to my fr
 ![Screenshot 2025-10-18 100434.png](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6Mjg4MywicHVyIjoiYmxvYl9pZCJ9fQ==--41ea522ef5e0cead8ce2324a26f5100f895b9292/Screenshot%202025-10-18%20100434.png)
   
 
-## 11/8/2025 - I just Printed it  
+## 11/8/2025 2:07 PM - I just Printed it  
 
 it felt awesoooomee, i love how it turned out, it works awesome for now, ill try to improve the design more so that its more futuristic looking n all. #fffff![MY FIRST 3D CAD PROJECT](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6OTM0MCwicHVyIjoiYmxvYl9pZCJ9fQ==--34c99d9c1bdac47a2c6df2b9f59e6763502fdcf9/MY%20FIRST%203D%20CAD%20PROJECT.png)
 
 
+  
+
+## 11/8/2025 2:13 PM - Updated the design  
+
+i just updated the design file a bit to add more girth to the design and make it stronger so as to hold heavier devices, saved it up and now its printing.![MY FIRST 3D CAD PROJECT](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6OTM0MSwicHVyIjoiYmxvYl9pZCJ9fQ==--371bfc66d9f93ca8e2cf502df1acf2522c7dade1/MY%20FIRST%203D%20CAD%20PROJECT.png)
   
 
